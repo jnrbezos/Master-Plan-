@@ -1,2 +1,2 @@
 # Master-Plan-
-To brain storm you techniques for marketing 
+To brain storm your techniques for marketing 
